@@ -8,8 +8,8 @@ Gaspillage, extractivisme, scories, tout est mutilé par l’auto.
 
 Surtout les humains.
 
-Mutilation psychique: enfermé dans une boite en métal, ils deviennent fous. Ils s’agglutinent tous sur des espaces immenses. Là ou on peut faire tenir confortablement 500 personnes, 50 personnes en voiture suffisent à tout bloquer.
+Mutilation psychique: enfermé dans une boîte en métal, ils deviennent fous. Ils s’agglutinent tous sur des espaces immenses. Là où on peut faire tenir confortablement 500 personnes, 50 personnes en voiture suffisent à tout bloquer.
 
-Mutilation physique: jambes brisées, sternum explosés, crânes fendus, bras disloqués, poumons transpercés. Sans parler des morts. Nuques d’enfants brisées, nourissons saignés à blanc, femmes décapitées, hommes étouffés dans leur propre sang.
+Mutilation physique: jambes brisées, sternums explosés, crânes fendus, bras disloqués, poumons transpercés. Sans parler des morts. Nuques d’enfants brisées, nourrissons saignés à blanc, femmes décapitées, hommes étouffés dans leur propre sang.
 
 C’est le progrès.
