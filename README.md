@@ -11,3 +11,4 @@ Liste de textes en vrac, sous licence CC-BY-SA-4.0
 - [Cadre](cadre.md)
 - [Ménage](menage.md)
 - [Vert](vert.md)
+- [Indifférent](indifferent.md)
